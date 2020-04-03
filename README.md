@@ -2,8 +2,9 @@
 
 ```markdown
 ###Ayuda de traducción
-Si necesita que alguien le traduzca con alguna de las siguientes organizaciones, podemos ayudarlo, llámenos 208-578-4114
-
+Si necesita que alguien le traduzca con alguna 
+de las siguientes organizaciones 
+podemos ayudarlo, llámenos 208-578-4114
 ```
 
 ### Linea de apoyo 208-578-4114  (Las 24 horas)
