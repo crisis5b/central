@@ -1,7 +1,7 @@
 ## Recursos para nuestras familias Hispanas/Latin@s
 
 ```markdown
-###Ayuda de traducción
+### Ayuda de traducción
 Si necesita que alguien le traduzca con alguna 
 de las siguientes organizaciones 
 podemos ayudarlo, llámenos 208-578-4114
