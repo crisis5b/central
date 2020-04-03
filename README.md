@@ -57,7 +57,8 @@ Cerrado al público los martes, miércoles y viernes, pero disponible por teléf
  
 ### COMIDA GRATUITA
 
-Distrito escolar del condado de Blaine:
+**Distrito escolar del condado de Blaine:**
+
 **Distribución gratuita de alimentos Grab-N-Go**
 
 _Gratis para todos los niños menores de 18 años._ Debe estar presente para recoger comida. Este no es un lugar para socializar o congregarse. Se alienta a los niños a recoger el almuerzo y luego llevarlo a casa con ellos.
