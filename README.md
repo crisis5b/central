@@ -22,7 +22,18 @@ Ofrecen:
   
  <img src="https://i.imgur.com/EmfSiG0.jpg" alt="apoyo">
  
- 
+
+### COMIDA GRATUITA 
+Personas de la tercera edad
+
+A partir del martes 17 de marzo de 2020, The Senior Connection (UBICADA en Hailey) está cerrado pero ofrecerá comidas para llevar. Las comidas están disponibles de 11:30 a.m. a 1 p.m. de lunes a viernes. Llame al (208) 788-3468 antes de las 8 a. M. Del día de la recogida (¡o el día anterior!) Para que el personal pueda planificar la cantidad adecuada de comidas. Llame nuevamente cuando llegue a The Senior Connection y la comida será entregada en su automóvil. Servicio en la acera!
+
+Si necesita hablar con alguien o tiene preguntas, la línea de amigos de Senior Connection estará disponible de 2 a 3 pm de lunes a viernes llamando al (208) 788-3468.
+
+The Senior Connection anticipa que estará cerrado hasta el 6 de abril de 2020. Es una situación fluida, así que visite el sitio web de The Senior Connection, la página de Facebook o llame al (208) 788-3468 para obtener actualizaciones.
+
+<img src="https://i.imgur.com/hBVQGxv.png" alt="apoyo">
+
 
 
 
