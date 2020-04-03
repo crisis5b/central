@@ -48,7 +48,7 @@ The Senior Connection anticipa que estará cerrado hasta el 6 de abril de 2020. 
 
 Cerrado al público los martes, miércoles y viernes, pero disponible por teléfono (208) 788-0121 o correo electrónico info@thehungercoalition.org.
 
-<img src="https://i.imgur.com/FtD4HFe.jpg" width="500" height="500" alt="apoyo">
+<img src="https://i.imgur.com/FtD4HFe.jpg" width="50%" height="50%" alt="apoyo">
  
  
  
