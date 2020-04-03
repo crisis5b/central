@@ -55,7 +55,7 @@ Cerrado al público los martes, miércoles y viernes, pero disponible por teléf
  
  
  
-###COMIDA GRATUITA
+### COMIDA GRATUITA
 
 Distrito escolar del condado de Blaine:
 **Distribución gratuita de alimentos Grab-N-Go**
