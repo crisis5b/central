@@ -19,8 +19,8 @@ Ofrecen:
 - Modos para mantenerse conectaco 
 
 208-578-4114  (Las 24 horas)
- 
-<a href="https://i.imgur.com/EmfSiG0.jpg"> </a>
+  
+ <img src="https://i.imgur.com/EmfSiG0.jpg" alt="apoyo">
  
  
 
