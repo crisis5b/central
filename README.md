@@ -1,5 +1,4 @@
-## COVID Crisis 
-## Recursos para nuestras familias Hispanas/Latin@s
+## COVID Crisis >  Recursos para nuestras familias Hispanas/Latin@s
 
 ```markdown
 ###Ayuda de traducción
