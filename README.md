@@ -26,7 +26,7 @@ Ofrecen:
 
 
 ### COMIDA GRATUITA 
-Personas de la tercera edad
+**Personas de la tercera edad**
 
 A partir del martes 17 de marzo de 2020, The Senior Connection (UBICADA en Hailey) está cerrado pero ofrecerá comidas para llevar. Las comidas están disponibles de 11:30 a.m. a 1 p.m. de lunes a viernes. Llame al (208) 788-3468 antes de las 8 a. M. Del día de la recogida (¡o el día anterior!) Para que el personal pueda planificar la cantidad adecuada de comidas. Llame nuevamente cuando llegue a The Senior Connection y la comida será entregada en su automóvil. Servicio en la acera!
 
@@ -40,7 +40,7 @@ The Senior Connection anticipa que estará cerrado hasta el 6 de abril de 2020. 
 
 
 ### COMIDA GRATUITA 
-The Hunger Coalition: se compromete a ayudar a nuestra comunidad a capear la tormenta mientras sea segura. Si necesita asistencia alimentaria de emergencia, The Hunger Coalition tiene tres distribuciones semanales de alimentos abiertas para todos los que necesitan alimentos suplementarios:
+**The Hunger Coalition:** se compromete a ayudar a nuestra comunidad a capear la tormenta mientras sea segura. Si necesita asistencia alimentaria de emergencia, The Hunger Coalition tiene tres distribuciones semanales de alimentos abiertas para todos los que necesitan alimentos suplementarios:
 
 - Lunes 1-6: 30 pm y jueves 1-6: 30 pm @ nuestra despensa de alimentos saludables ubicada en 121 Honeysuckle St, Bellevue
 
@@ -55,14 +55,14 @@ Cerrado al público los martes, miércoles y viernes, pero disponible por teléf
 ###COMIDA GRATUITA**
 
 Distrito escolar del condado de Blaine:
- Distribución gratuita de alimentos Grab-N-Go
+**Distribución gratuita de alimentos Grab-N-Go**
 
-Gratis para todos los niños menores de 18 años. Debe estar presente para recoger comida. Este no es un lugar para socializar o congregarse. Se alienta a los niños a recoger el almuerzo y luego llevarlo a casa con ellos.
+_Gratis para todos los niños menores de 18 años._ Debe estar presente para recoger comida. Este no es un lugar para socializar o congregarse. Se alienta a los niños a recoger el almuerzo y luego llevarlo a casa con ellos.
 
 Horario: 
 
 Diario de lunes a viernes hasta el viernes 3 de abril":
-- 11 am - 11:20 am en los siguientes lugares: Estación de bomberos de Gannett, Westwood Trailer Park, estacionamiento de la escuela primaria Alturas, Balmoral, River St. y Bullion Park & ​​Ride, Meadows y Country Chalet.
+- 11 am - 11:20 am en los siguientes lugares: Estación de bomberos de Gannett, Westwood Trailer Park, estacionamiento de la escuela primaria Alturas, Balmoral, River St. y Bullion Park & Ride, Meadows y Country Chalet.
 - 11 am - 11:30 am en el carril para dejar a los padres de la Escuela Primaria Bellevue
 - 11:15 am - 11:25 am en Suntree Hollow
 - 11:15 am - 12:10 pm en Valley View Apartments
@@ -73,6 +73,8 @@ Diario de lunes a viernes hasta el viernes 3 de abril":
 Para mas informacion: https://www.blaineschools.org/
 
 <img src="https://i.imgur.com/srlwvnF.jpg" alt="apoyo">
+
+
 
 
 ```markdown
