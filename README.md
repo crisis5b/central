@@ -10,13 +10,13 @@ podemos ayudarlo, llámenos 208-578-4114
 ### LINEA DE APOYO 208-578-4114  (Las 24 horas)
 
 Linea de apoyo 208-578-4114  (Las 24 horas)
-Vecinos Apoyando Vecinos >> Ofrecen un linea de apoyo / soporto telefonica 24 horas al dia.  208-578-4114  (Las 24 horas)
+Vecinos Apoyando Vecinos >> Ofrecen una linea de apoyo / soporte telefonica 24 horas al dia.  208-578-4114  (Las 24 horas)
 
 Ofrecen:
 - Cajas para el Cuidado de la familia con juegos, artesania, y actividades saludables (se puede llevar como entrega)
 - Servicios para ir de compras y entrega
 - Apoyo y cuidado emocional continua
-- Modos para mantenerse conectaco 
+- Modos para mantenerse conectado 
 
 208-578-4114  (Las 24 horas)
   
