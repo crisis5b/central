@@ -94,6 +94,10 @@ El grupo está dirigido por facilitadores capacitados que tienen familiares que 
 Para más información, por favor contacte a 
 Herbert Romero al 208-309-5302 o Jose Varela 208-309-0922.
 
-CADA JUEVES, 6:00 – 7:30 pm, En español, https://us04web.zoom.us/j/879918928
+CADA JUEVES, 6:00 – 7:30 pm, En español, <a href="https://us04web.zoom.us/j/879918928">https://us04web.zoom.us/j/879918928</a>
 +1 346 248 7799, ID de Cita (Meeting ID): 879 918 928, Clave de Cita (Meeting Password): 392609
+
+### Recursos de Préstamos para Pequeñas Empresas
+
+Vea más información sobre los Préstamos ante Desastres por Daños Económicos de la Agencia Federal de Pequeños Negocios de los Estados Unidos (SBA, por sus siglas en inglés) en: <a href="https://www.sba.gov/espanol/">https://www.sba.gov/espanol/ </a>
 
