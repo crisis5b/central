@@ -85,9 +85,9 @@ Grupo De Apoyo Para Familiares De **NAMI**
 
 **El Grupo de Apoyo Familiar de NAMI** es un recurso GRATIS para las familias que tienen un ser querido con una enfermedad mental. Saber que otros tienen experiencias similares es un alivio para las familias que rara vez hablan de enfermedades mentales con sus vecinos, amigos o a menudo, incluso con sus familiares. Aprender cómo otros han trabajado en temas comunes puede inspirar esperanza y proporcionar herramientas prácticas. 
 El Grupo de Apoyo Familiar proporciona: 
-•	Una red de amigos que se preocupan y entienden 
-•	Ideas que lo ayudan a cuidarse a sí mismo y a su familia 
-•	Una oportunidad para compartir sus experiencias abiertamente y sin juicio
+- Una red de amigos que se preocupan y entienden 
+- Ideas que lo ayudan a cuidarse a sí mismo y a su familia 
+- Una oportunidad para compartir sus experiencias abiertamente y sin juicio
 
 El grupo está dirigido por facilitadores capacitados que tienen familiares que viven con una enfermedad mental. Ellos entienden tus desafíos y ofrecen aliento y apoyo. Se hace hincapié en la confidencialidad; usted comparte toda la información personal que desee. No es necesario inscribirse; sólo tienes que venir cuando necesites a alguien con quien hablar en un ambiente relajado.
 
