@@ -79,7 +79,7 @@ Para mas informacion: https://www.blaineschools.org/
 <img src="https://i.imgur.com/srlwvnF.jpg" alt="apoyo">
 
 
-### APOYO DEL BIENESTAR Y SALUD MENTAL
+### APOYO DE BIENESTAR Y SALUD MENTAL
 
 Grupo De Apoyo Para Familiares De **NAMI**
 
