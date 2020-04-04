@@ -28,7 +28,7 @@ Ofrecen:
 ### COMIDA GRATUITA 
 **Personas de la tercera edad**
 
-A partir del martes 17 de marzo de 2020, The Senior Connection (UBICADA en Hailey) está cerrado pero ofrecerá comidas para llevar. Las comidas están disponibles de 11:30 a.m. a 1 p.m. de lunes a viernes. Llame al (208) 788-3468 antes de las 8 a. M. Del día de la recogida (¡o el día anterior!) Para que el personal pueda planificar la cantidad adecuada de comidas. Llame nuevamente cuando llegue a The Senior Connection y la comida será entregada en su automóvil. Servicio en la acera!
+A partir del martes 17 de marzo de 2020, The Senior Connection (UBICADA en Hailey) está cerrado pero ofrecerá comidas para llevar. Las comidas están disponibles de 11:30 a.m. a 1 p.m. de lunes a viernes. Llame al (208) 788-3468 antes de las 8 a.m. Del día de la recogida (¡o el día anterior!) Para que el personal pueda planificar la cantidad adecuada de comidas. Llame nuevamente cuando llegue a The Senior Connection y la comida será entregada en su automóvil. Servicio en la acera!
 
 Si necesita hablar con alguien o tiene preguntas, la línea de amigos de Senior Connection estará disponible de 2 a 3 pm de lunes a viernes llamando al (208) 788-3468.
 
@@ -75,6 +75,13 @@ Para mas informacion: https://www.blaineschools.org/
 <img src="https://i.imgur.com/srlwvnF.jpg" alt="apoyo">
 
 <hr> 
+
+### APOYO para la Renta y Otras Cuentas
+**The Advocates** está prestando servicios de forma remota; por favor contáctenos por teléfono. Estamos comprometidos a ayudarlo en estos tiempos difíciles. 208-788-4191
+<img src="https://i.imgur.com/L1PvB35.png" alt="apoyo">
+
+
+<hr>
 
 ### APOYO DE BIENESTAR Y SALUD MENTAL
 
