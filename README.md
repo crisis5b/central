@@ -36,8 +36,7 @@ The Senior Connection anticipa que estará cerrado hasta el 6 de abril de 2020. 
 
 <img src="https://i.imgur.com/hBVQGxv.png" alt="apoyo">
 
-
-
+<hr> 
 
 ### COMIDA GRATUITA 
 **The Hunger Coalition:** se compromete a ayudar a nuestra comunidad a capear la tormenta mientras sea segura. Si necesita asistencia alimentaria de emergencia, The Hunger Coalition tiene tres distribuciones semanales de alimentos abiertas para todos los que necesitan alimentos suplementarios:
@@ -50,10 +49,7 @@ Cerrado al público los martes, miércoles y viernes, pero disponible por teléf
 
 <img src="https://i.imgur.com/FtD4HFe.jpg" width="50%" height="50%" alt="apoyo">
  
- 
- 
- 
- 
+ <hr> 
  
 ### COMIDA GRATUITA
 
@@ -78,6 +74,7 @@ Para mas informacion: https://www.blaineschools.org/
 
 <img src="https://i.imgur.com/srlwvnF.jpg" alt="apoyo">
 
+<hr> 
 
 ### APOYO DE BIENESTAR Y SALUD MENTAL
 
@@ -97,12 +94,15 @@ Herbert Romero al 208-309-5302 o Jose Varela 208-309-0922.
 CADA JUEVES, 6:00 – 7:30 pm, En español, <a href="https://us04web.zoom.us/j/879918928">https://us04web.zoom.us/j/879918928</a>
 +1 346 248 7799, ID de Cita (Meeting ID): 879 918 928, Clave de Cita (Meeting Password): 392609
 
+<hr> 
+
 ### Recursos de Préstamos para Pequeñas Empresas
 
 Vea más información sobre los Préstamos ante Desastres por Daños Económicos de la Agencia Federal de Pequeños Negocios de los Estados Unidos (SBA, por sus siglas en inglés) en: <a href="https://www.sba.gov/espanol/">https://www.sba.gov/espanol/ </a>
 
 <img src="https://i.imgur.com/ZK3SadT.png" alt="apoyo">
 
+<hr> 
 
 
 
