@@ -103,7 +103,7 @@ CADA JUEVES, 6:00 – 7:30 pm, En español, <a href="https://us04web.zoom.us/j/8
 
 <hr> 
 
-### Recursos de Préstamos para Pequeñas Empresas
+### RECURSOS DE PRÉSTAMOS PARA EMPRESAS
 
 Vea más información sobre los Préstamos ante Desastres por Daños Económicos de la Agencia Federal de Pequeños Negocios de los Estados Unidos (SBA, por sus siglas en inglés) en: <a href="https://www.sba.gov/espanol/">https://www.sba.gov/espanol/ </a>
 
@@ -111,9 +111,14 @@ Vea más información sobre los Préstamos ante Desastres por Daños Económicos
 
 <hr> 
 
+### RECURSOS DE PARA EMPRESAS
+
+Apoyo Individualizado - COVID 19 
+
+**Idaho Women's Business Center** quiere ayudar a su negocio durante la crisis de COVID-19. Continuaremos organizando consultas individual con nuestro personal para servirle, identificar sus preocupaciónes y conectarlo con los recursos disponibles. Para obtener ayuda en español, comuníquese con Susie Ríos, Directora, o Sayrd Iverson, Directora, Idaho Women Business Center, Cellular: 208-312-5774, Oficina 208-996-1573. <a href="https://www.idahowomen.org/covid-19-resources.html"> https://www.idahowomen.org/covid-19-resources.html </a>
 
 
-
+<hr> 
 
 <img src="https://i.imgur.com/RI3Dewn.jpg" alt="apoyo">
 
