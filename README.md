@@ -117,6 +117,8 @@ Apoyo Individualizado - COVID 19
 
 **Idaho Women's Business Center** quiere ayudar a su negocio durante la crisis de COVID-19. Continuaremos organizando consultas individual con nuestro personal para servirle, identificar sus preocupaciónes y conectarlo con los recursos disponibles. Para obtener ayuda en español, comuníquese con Susie Ríos, Directora, o Sayrd Iverson, Directora, Idaho Women Business Center, Cellular: 208-312-5774, Oficina 208-996-1573. <a href="https://www.idahowomen.org/covid-19-resources.html"> https://www.idahowomen.org/covid-19-resources.html </a>
 
+La misión de **Idaho Women's Business Center**  es servir a todas las mujeres, culturas y comunidades para lograr sus objetivos empresariales.
+
  <img src="https://i.imgur.com/M2p6hzd.png" alt="apoyo">
 
 <hr> 
