@@ -111,7 +111,7 @@ Vea más información sobre los Préstamos ante Desastres por Daños Económicos
 
 <hr> 
 
-### RECURSOS DE PARA EMPRESAS
+### RECURSOS PARA EMPRESAS
 
 Apoyo Individualizado - COVID 19 
 
